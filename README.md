@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a student from Esa Unggul University in Informatics Engineering
+I am a Enthusiast in IT, Robotics, Electronics, and IoT | Passionate UI Designer
 
 
 ## 🌐 Socials:
